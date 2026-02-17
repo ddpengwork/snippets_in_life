@@ -1,3 +1,3 @@
 ---
-title: I'm sharing snippets in my life with you, my friend. Welcome!
+title: To See a World in a Grain of Sand
 ---
